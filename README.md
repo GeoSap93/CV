@@ -1,1 +1,1 @@
-Please have a look on my resume and my work published in a scientific journal.
+This section includes my cv and my work as a postgraduate and master student.
